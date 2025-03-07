@@ -1,6 +1,6 @@
 - 👋 Hi, I'm Karanei Kimutai
 - 👀 I’m interested in being a better programmer, my dream is to use the gift God's given me to make an impact on the lives of other people
-- 🌱 I’m currently learning, I know I'm nowhere near top level but I'm willing to learn and I'm working on being better
+- 🌱 I’m currently learning, I know I'm nowhere near top level but I'm looking to learn and I'm working on being better
 - 💞️ I’m looking to collaborate on projects that have an impact on the lives of other people
 - ⚡ Fun fact:I love gaming, I'm working hard so that one day I can play all the games I missed out on growing up
 
